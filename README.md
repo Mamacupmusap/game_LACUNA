@@ -37,3 +37,15 @@ Member:<br />
 <br /><br/>
 Final Project 2022 <br />
 Kasetsart University
+
+<br/><br/>
+Special Thanks!
+<br /><br />
+PRODUCER DARU : https://www.youtube.com/channel/UCay2o2NDxI7KCn8X1-L9aRA
+<br />
+Oak Studios : https://www.youtube.com/channel/UCL0pcAGV4g67jCxGIPWv9iQ
+<br />
+Zapsplat : https://www.zapsplat.com/sound-effect-category/button-clicks/page/2/
+<br/>
+Mixkit : https://mixkit.co/free-stock-music/tag/nature/
+
