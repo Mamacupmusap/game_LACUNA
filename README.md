@@ -16,9 +16,12 @@ https://youtu.be/--0FxUSOgeE
 Link download game: [folder Lacuna_game] <br />
 https://drive.google.com/drive/folders/1Al0Lrc01Sm-MtCOXjt_QhLqdlWNf5-JJ?usp=sharing
 
-<br /><br />
+<br />
 Video puzzle answer: <br/>
-chapter1: <br />
+chapter1: https://www.youtube.com/watch?v=H44VlR10I8E&list=PL0Gei-GjPSyQsO11IaF7qxn8XtEPG2ssM&index=1 <br />
+chapter2: https://www.youtube.com/watch?v=KFeaw_ISi2M&list=PL0Gei-GjPSyQsO11IaF7qxn8XtEPG2ssM&index=2 <br />
+chapter3: https://www.youtube.com/watch?v=Dpv70z5IKgo&list=PL0Gei-GjPSyQsO11IaF7qxn8XtEPG2ssM&index=3 <br />
+chapter4: https://www.youtube.com/watch?v=LneU8sp7dgU&list=PL0Gei-GjPSyQsO11IaF7qxn8XtEPG2ssM&index=4 <br />
 
 
 <br /><br />
